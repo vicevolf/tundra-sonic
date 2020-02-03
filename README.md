@@ -36,3 +36,5 @@
 ## 投喂狼 ❤
 
 **爱发电** https://afdian.net/@volfclub
+
+![sonic.gif](https://i.loli.net/2020/02/03/yxg8UBzt1TFpjhO.gif)

@@ -40,6 +40,6 @@
 
 ![dHJwkYA.gif](https://i.loli.net/2020/02/03/VoTrZGfqiDF46BY.gif)
 
-## 用户说 ✨
+## 用户说 📰
 
 - 20.02.05 [锋潮测评室](https://mp.weixin.qq.com/s/-XY1m_dEZQ0AInEbfhOADw)
